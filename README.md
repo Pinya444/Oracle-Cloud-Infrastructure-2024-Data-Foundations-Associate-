@@ -1,1 +1,1 @@
-# Extend your skills! Check out"Become an Oracle Cloud Infrastructure Data Foundations Associate (2024)" https://mylearn.oracle.com/ou/learning-path/become-an-oracle-cloud-infrastructure-data-foundations-associate-2024/140339 #LearnOracle #OracleUniversity #Oracle via @Oracle_Edu 
+# Check out my new Oracle Cloud Infrastructure 2024 Data Certified Foundations Associate! https://catalog-education.oracle.com/pls/certview/sharebadge?id=7E2033F2F03546EFDF155FC8C3ABD2D2D51478E3C8CC1876B61A26B05A38F728 #OracleCertified via @Oracle_Edu 
